@@ -18,7 +18,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/drive/u/1/my-drive](https://drive.google.com/drive/u/1/my-drive)
 
-- ⚡ Fun fact **I thin I am Mr. Robot**
+- ⚡ Fun fact **I think I am Mr. Robot**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
